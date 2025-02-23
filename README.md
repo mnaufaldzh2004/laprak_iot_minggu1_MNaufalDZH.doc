@@ -1,1 +1,0 @@
-# laprak_iot_minggu1_MNaufalDZH.doc
